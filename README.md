@@ -1,5 +1,5 @@
 ### Hi there 👋 My name is Tuan Pham
-### I am a third year student
+### I am a third year student, hoping to do Co-op
 
 
 <!--
