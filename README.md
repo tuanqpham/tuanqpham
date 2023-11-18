@@ -1,4 +1,4 @@
-### Hi there 👋 My name is Finn Pham
+### Hi there 👋 My name is Tuan Pham
 ### I am a third year student
 
 
