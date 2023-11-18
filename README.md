@@ -1,4 +1,5 @@
 ### Hi there 👋 My name is Finn Pham
+### I am a third year student
 
 
 <!--
